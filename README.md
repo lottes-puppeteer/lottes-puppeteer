@@ -6,10 +6,10 @@ I'm Charlie! You may also call me Lotte Lottie (if we're close)
 Do not under any circumstances call me Charlotte, only TWO people can
 
 ## Interests
-![EEEK Lotte LWA](https://github.com/user-attachments/assets/fbecb04f-2293-4d45-b0ae-ea5de953fbc8)
-
+![Pixel Lotte LWA](https://github.com/user-attachments/assets/2d65dcd8-262d-4865-b50d-5151d26abc03)
 - Little Witch Academia (obv)
-- 
+- FNAF (only a lil bit)
 
 ## Do Not Interact
 ![Lotte Broom Twirl LWA](https://github.com/user-attachments/assets/c7c6b535-a8e3-4352-a8a8-225478a28fff)
+- Basic DNI (racist, lgbtq+phobic, sexist, ect)
