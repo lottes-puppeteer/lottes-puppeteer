@@ -13,3 +13,4 @@ Do not under any circumstances call me Charlotte, only TWO people can
 ## Do Not Interact
 ![Lotte Broom Twirl LWA](https://github.com/user-attachments/assets/c7c6b535-a8e3-4352-a8a8-225478a28fff)
 - Basic DNI (racist, lgbtq+phobic, sexist, ect)
+- Endo "Systems"
