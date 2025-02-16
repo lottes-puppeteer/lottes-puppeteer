@@ -3,7 +3,9 @@
 # ✦ 🧸 ; Charlie ✧
 I'm Charlie! You may also call me Lotte Lottie (if we're close)
 
-Do not under any circumstances call me Charlotte, only TWO people can
+Do not under any circumstances call me Charlotte, only TWO people can.
+
+Doubles DNI for now, not in the right mental state to be like "wow i look nothing likw any of these other charlies. am i even real." again.
 
 ## Interests
 ![Pixel Lotte LWA](https://github.com/user-attachments/assets/2d65dcd8-262d-4865-b50d-5151d26abc03)
