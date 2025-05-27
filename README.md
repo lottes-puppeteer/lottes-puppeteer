@@ -1,4 +1,5 @@
-![me](https://github.com/user-attachments/assets/baab5c32-8176-45cb-a181-ee493b75a692)
+![me](https://github.com/user-attachments/assets/2e953fcc-4596-4df8-9204-207a311c4028)
+
 
 
 # ✦ ⛅ ; Charlie ✧
