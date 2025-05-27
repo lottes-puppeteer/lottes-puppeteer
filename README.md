@@ -1,4 +1,5 @@
-![me](![Screenshot_20250401-221344](https://github.com/user-attachments/assets/fdfab781-e212-4fee-be82-0d92542ee000)
+![me](https://github.com/user-attachments/assets/baab5c32-8176-45cb-a181-ee493b75a692)
+
 )
 
 # ✦ ⛅ ; Charlie ✧
