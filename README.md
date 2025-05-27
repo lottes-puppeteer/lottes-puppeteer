@@ -1,6 +1,5 @@
 ![me](https://github.com/user-attachments/assets/baab5c32-8176-45cb-a181-ee493b75a692)
 
-)
 
 # ✦ ⛅ ; Charlie ✧
 I'm Charlie! You may also call me Lotte Lottie (if we're close)
