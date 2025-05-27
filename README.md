@@ -1,4 +1,5 @@
-![s. a. v. e. t. h. e. m](https://github.com/user-attachments/assets/67798e12-be28-419e-adcd-cbbdf04a8f10)
+![me](![Screenshot_20250401-221344](https://github.com/user-attachments/assets/fdfab781-e212-4fee-be82-0d92542ee000)
+)
 
 # ✦ ⛅ ; Charlie ✧
 I'm Charlie! You may also call me Lotte Lottie (if we're close)
