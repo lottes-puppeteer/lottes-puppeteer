@@ -12,8 +12,6 @@ I'm Charlie! You may also call me Lotte Lottie (if we're close)
 
 Do not under any circumstances call me Charlotte, only TWO people can.
 
-Doubles DNI for now, not in the right mental state to be like "wow i look nothing like any of these other charlies. am i even real." again.
-
 ✧─── ･ ｡ﾟ★: *.✦ .* :★. ───✧
 
 ## Interests
