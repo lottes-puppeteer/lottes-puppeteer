@@ -2,7 +2,7 @@
 
 
 
-# ✦ ⛅ ; Charlie ✧
+# ✦ 💫🎁 ; Charlie ✧
 I'm Charlie! You may also call me Lotte Lottie (if we're close)
 
 MINOR || 18+ DNIU already on my list || 13- DNI unless already on my list
@@ -10,7 +10,7 @@ MINOR || 18+ DNIU already on my list || 13- DNI unless already on my list
 ☑︎ Anti-Proshipping !!
 ☑︎ Anti-Harrassment !!
 
-Do not under any circumstances call me Charlotte, only TWO people can.
+Do not under any circumstances call me Charlotte, only TWO people can. If you can respect my boundaries, I can respect yours.
 
 ✧─── ･ ｡ﾟ★: *.✦ .* :★. ───✧
 
@@ -27,5 +27,6 @@ Do not under any circumstances call me Charlotte, only TWO people can.
 - Endo "Systems"
 - Proshippers
 - Pro-Harrassment
+I do not think proshipping is good or normal for any reason but I also do not think harassment and death threats is the answer, it only makes them think they were right all along and probably less likely to get help for any mental issues they're covering up under their proshipping. That or they just do not care, are gross people and you wasted time.
 
 ✧─── ･ ｡ﾟ★: *.✦ .* :★. ───✧
