@@ -5,7 +5,7 @@
 # ✦ ⛅ ; Charlie ✧
 I'm Charlie! You may also call me Lotte Lottie (if we're close)
 
-7𝑻𝑬𝑬𝑵
+MINOR || 18+ DNIU already on my list || 13- DNI unless already on my list
 
 ☑︎ Anti-Proshipping !!
 ☑︎ Anti-Harrassment !!
