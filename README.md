@@ -12,6 +12,8 @@ MINOR || 18+ DNIU already on my list || 13- DNI unless already on my list
 
 Do not under any circumstances call me Charlotte, only TWO people can. If you can respect my boundaries, I can respect yours.
 
+If I don't interact with you much either I don't really know what to talk to you about or I don't know where to find you, a whisper is always great!
+
 ✧─── ･ ｡ﾟ★: *.✦ .* :★. ───✧
 
 ## Interests
