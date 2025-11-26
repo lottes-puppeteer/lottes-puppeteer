@@ -3,7 +3,7 @@
 <p align="center"><img src=https://github.com/user-attachments/assets/0f69d433-393a-46e4-a851-58c81d453a85/></p>
 
 NAMES :
-- NULL
+- $${\color{#a70000}NULL}$$
 - CHARLOTTE
 - CHARLIE
 - ROWAN
