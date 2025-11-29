@@ -14,6 +14,8 @@ NAMES </p closefriendsonly>
 - LOTTE
 - LOTTIE
 
+<p align="center"> If I'm following you then we're either friends or I think you're interesting
+
 <p align="center"><img src=https://github.com/user-attachments/assets/8216b689-8242-48c6-84e9-096f8a9fd1fb/></p>
 
 $${\color{#f5fba3}null has joined the game}$$
